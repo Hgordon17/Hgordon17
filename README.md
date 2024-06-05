@@ -7,7 +7,7 @@ Fullstack Developer
 * 🌍  I'm based in Port Moresby
 * ✉️  You can contact me at [henrygordon.jr@gmail.com](mailto:henrygordon.jr@gmail.com)
 
-### Skills
+### I am skilled in
 
 
 <p align="left">
